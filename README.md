@@ -1,2 +1,0 @@
-# FOR4PPAREL.
-Web
